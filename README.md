@@ -1,0 +1,1 @@
+# PaintShop-Pro-Photo-Editing-Suite
